@@ -1,5 +1,5 @@
 # 👋 Hi, I'm Tom!
-🔬 <b>MSc Data Science student at University of London.</b><br>
+🔬 <b>MSc Data Science student at University of London (Remote Part-Time study).</b><br>
 <br>
 💰 <b>2 YOE in fintech at a financial markets analytics firm.</b><br>
 <br>
